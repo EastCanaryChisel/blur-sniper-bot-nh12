@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with secure blur sniper bot | take-profit + rarity-analysis, the #1 blur sniper bot. Includes take-profit and rarity-analysis for a faster and more
 
 
 
